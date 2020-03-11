@@ -1,1 +1,0 @@
-# paul-griffith.github.io
